@@ -1,0 +1,1 @@
+# laba10part1.github.io
